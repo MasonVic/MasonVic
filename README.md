@@ -7,8 +7,8 @@
 ${\normalsize\color{#fdfdfc}\textbf{☙⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯·⇁ "𝐿𝒾𝑒𝒷𝑒, 𝒮𝑜 𝒦𝓁𝒾𝓃𝑔𝓉 𝐿𝒾𝑒𝒷𝑒." ↽·⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯❧}}$ <br>
 ${\normalsize\color{#fdfdfc}\textbf{⚔︎}}$ <br>
 ${\normalsize\color{#44351d}\textbf{𝓥𝓲𝓬𝓽𝓸𝓻}}{\normalsize\color{#7c5928}\textbf{ ♡ }}{\normalsize\color{#2d2718}\textbf{𝓜𝓪𝓼𝓸𝓷}}$ <br>
-${\normalsize\color{#9c4f2a}\textbf{My precious GNB OC x OC}}$ <br>
-${\normalsize\color{#d87836}\textbf{They deserve some love too}}$ <br>
+${\normalsize\color{#9c4f2a}\textbf{My precious OC x OC}}$ <br>
+${\normalsize\color{#d87836}\textbf{From GNB Fandom}}$ <br>
 ${\normalsize\color{#fac954}\textbf{Mason belongs to my gorgeous BF}}$ <a href="https://github.com/Javoks">♥‬</a>‬<br>
 ${\small\color{#fdfdfc}\textbf{My Main }}$ <a href="https://github.com/PESKYMAILMAN">✉︎‬</a>‬ <br>
 <br>
