@@ -11,6 +11,6 @@ ${\normalsize\color{#9c4f2a}\textbf{My precious OC x OC}}$ <br>
 ${\normalsize\color{#d87836}\textbf{From GNB Fandom}}$ <br>
 ${\normalsize\color{#fac954}\textbf{Mason belongs to my gorgeous BF}}$ <a href="https://github.com/Javoks">♥‬</a>‬<br>
 ${\small\color{#fdfdfc}\textbf{My Main }}$ <a href="https://github.com/PESKYMAILMAN">✉︎‬</a>‬ <br>
-<br>
+${\small\color{#202b33}\textbf{Russian And American Gay Men ♡}}$<br>
 ${\normalsize\color{#fdfdfc}\textbf{☙⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯·⇁ㅤㅤ⛴︎ㅤㅤ↽·⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯❧}}$ <br>
 </p>
