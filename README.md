@@ -10,7 +10,7 @@ ${\normalsize\color{#44351d}\textbf{𝓥𝓲𝓬𝓽𝓸𝓻}}{\normalsize\color
 ${\normalsize\color{#9c4f2a}\textbf{My precious GNB OC x OC}}$ <br>
 ${\normalsize\color{#d87836}\textbf{They deserve some love too}}$ <br>
 ${\normalsize\color{#fac954}\textbf{Mason belongs to my gorgeous BF}}$ <a href="https://github.com/Javoks">♥‬</a>‬<br>
-${\small\color{#fdfdfc}\textbf{Main }}$ <a href="https://github.com/PESKYMAILMAN">✉︎‬</a>‬ <br>
+${\small\color{#fdfdfc}\textbf{My Main }}$ <a href="https://github.com/PESKYMAILMAN">✉︎‬</a>‬ <br>
 <br>
 ${\normalsize\color{#fdfdfc}\textbf{☙⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯·⇁ㅤㅤ⛴︎ㅤㅤ↽·⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯❧}}$ <br>
 </p>
